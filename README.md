@@ -10,4 +10,5 @@ Sign language also depends on physical body shifting from one direction to anoth
 It still takes a lot of work to make this function, and I respect that. However, sign language gloves are the last thing any person in the deaf community actually wants or needs, your time is better spent elsewhere =)
 
 
-                                                                                                                                     - Nicolemarsh 
+                                                                                                      
+                                                                                                     by Nicolemarsh 
