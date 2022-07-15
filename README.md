@@ -1,5 +1,5 @@
  
-#"Honest comment by Nicolemarsh"
+#Honest comment by Nicolemarsh
 
 I respect the work that went into this, but sign language gloves are a VERY BAD idea. It requires a deaf user (such as myself) to carry around this cumbersome technology, and it does not benefit me whatsoever, only the people who can hear. It does not offer a convenient way to provide a speaking person's reply.
 
