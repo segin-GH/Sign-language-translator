@@ -1,7 +1,6 @@
+ 
  ![1658399151494](https://user-images.githubusercontent.com/98380527/180192348-2a08e1e2-2fb8-4884-92ca-a17cf74fe1d5.jpg)
 
- 
- 
 **Honest comment by Nicolemarsh**
 
 I respect the work that went into this, but sign language gloves are a VERY BAD idea. It requires a deaf user (such as myself) to carry around this cumbersome technology, and it does not benefit me whatsoever, only the people who can hear. It does not offer a convenient way to provide a speaking person's reply.
